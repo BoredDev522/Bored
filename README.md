@@ -1,3 +1,3 @@
-# In terms of being bored, i'm bored
+# In terms of being bored, i'm very bored
 
 REEEEEEEEEEEE
